@@ -1,3 +1,3 @@
 # prueba
-Antoni Ruth Schmuck
+Antoni Faustino Ruth Schmuck
 Hector Manuel Aular Osorio
